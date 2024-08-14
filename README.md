@@ -12,3 +12,5 @@ changed + similar games, omori, or any vivziepop medias
 
 they make me rlly uncomfy srry 
 
+
+![](https://files.catbox.moe/ogcbka.gif)
