@@ -16,5 +16,5 @@ i dont like tonetags for myself but ill use them for you if you ask
 
 i will block / avoid you if
 - you have skins/are a fan of : changed + similar games, omori, or any vivziepop medias
-- you are system : i dont want to be friends just bc we have the same disorder ( i will only block you if youre like "oh youre a system too waow 😮 lets be besties forever" )
+- you are a system : i dont want to be friends just bc we have the same disorder ( i will only block you if youre like "oh youre a system too waow 😮 lets be besties forever" )
 - you baby/sexualize characters : idc if youre attracted to some character but like. be normal maybe
