@@ -6,7 +6,7 @@ this is for pt only really
 
 ---
 
-if you see me hanging out in an area by myself come say hi :3 i love interaction and its ok if you come sit/kiss me/etc idc its all silly forever,, if im sitting with my boyfriend (ill be cuddling/sitting next to him) wed like to be left alone but you can walk by to like poke us thats ok
+if you see me hanging out in an area by myself come say hi :3 i love interaction and its ok if you come sit/kiss me/etc idc its all silly forever,, if im sitting with my friends/boyfriend, wed like to be left alone but you can walk by to like poke us thats ok
 
 whispering to me is probably the best way to get my attention, i do my best to reply to all of them !!
 
