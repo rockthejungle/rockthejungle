@@ -1,20 +1,15 @@
- ![](https://files.catbox.moe/ogcbka.gif)
+I'm Cal or Wander or Buck !!! You can also call me the name of the character I'm using idm :3 
 
-hi im wade !!
+I do NOT do roleplay , please don't do that with me .
 
-this is for pt only really
+Whispering to me is probably the best way to get my attention, I do my best to reply to all of them !!
 
----
+I dont like tonetags for myself but I'll use them for you if you ask .
 
-if you see me hanging out in an area by myself come say hi :3 i love interaction and its ok if you come sit/kiss me/etc idc its all silly forever,, if im sitting with my friends/boyfriend, wed like to be left alone but you can walk by to like poke us thats ok
-
-whispering to me is probably the best way to get my attention, i do my best to reply to all of them !!
-
-i dont like tonetags for myself but ill use them for you if you ask
-
----
-
-i will block / avoid you if
-- you have skins/are a fan of : changed + similar games, omori, or any vivziepop medias
-- you are a system : i dont want to be friends just bc we have the same disorder ( i will only block you if youre like "oh youre a system too waow 😮 lets be besties forever" )
-- you baby/sexualize characters : idc if youre attracted to some character but like. be normal maybe
+I will block you if you have skins of : 
+- Homestuck (Thin Ice)
+- Changed
+- Vivziepop medias
+- Hetalia/Coutryhumans/Countryballs
+- Genshin
+- MHA/BNHA
